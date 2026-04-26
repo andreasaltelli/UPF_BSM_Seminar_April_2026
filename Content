@@ -1,0 +1,1 @@
+This file contains slides of the Impromptu Seminar held on February 3, in UPF Barcelona School of Management, Carrer de Balmes, 132, Barcelona, Spain, titled Models of pandemics: What should we do differently next time?
